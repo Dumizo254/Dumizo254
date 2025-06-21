@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning coding, data science, and cyber security
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on building apps and AI training
-- 📫 How to reach me dumizodantez5@gmail.com
+- 📫 How to reach me kayyllaatthhomass@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: I like sea food but have never tasted!
 
